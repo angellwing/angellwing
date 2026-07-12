@@ -11,7 +11,6 @@ _Feel free to interact with me unless my name says otherwise :3 ⑅_
 _⠀𓈒 sign ata :3   ೃ ´𓏼 ꒱ ♡ _
 
 
-[![spotify-github-profile](https://open.spotify.com/user/31ldmq26yuviztnz6iewdwecfyam?si=wxPy27-YSD-obKUS9DvaDA&utm_source=copy-link/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6f71be&bar_color_cover=true)](https://open.spotify.com/playlist/7osUce4mcALouIifAheoYE?si=p6H1CPsaQ4KXjSlDdkdUeg&utm_source=copy-link&pi=eucqOnYgTNy6S/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&redirect=true)
 
 
 
