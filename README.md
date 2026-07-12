@@ -7,7 +7,7 @@ src="https://file.garden/alNQuwvpCDOV6iRS/71b534520a7a56698333e0aae520d5ef.gif" 
 
 _Feel free to interact with me unless my name says otherwise :3 ⑅_
 𓏼꒰ఎ⠀basic dni⠀𐂯 ˚̣̣̣⠀
-_⠀𓈒 @chemicalrot @HARRlNGTON @bloodymuch @DrunkExorcism @sswaag  ೃ ´𓏼 ꒱ ♡ _
+_⠀𓈒 sign ata :3   ೃ ´𓏼 ꒱ ♡ _
 
 
 
