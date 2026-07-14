@@ -3,12 +3,12 @@
 <img alt="Angie will never know I'm making fun of her in the codes" 
 src="https://file.garden/alNQuwvpCDOV6iRS/71b534520a7a56698333e0aae520d5ef.gif" />
 
-| ͜͝ || ͜͝ | ⠀ ྐ༅⠀𓊈⠀angie ₒᵣ angel ⠀𓊉⠀𓈒  ͜͜♬ ࣪𓏼ྀི
+| ͜͝ || ͜͝ | ⠀ ྐ༅⠀𓊈⠀a n g i e  ₒᵣ  a n g e l ⠀𓊉⠀𓈒  ͜͜♬ ࣪𓏼ྀི
 
-_Feel free to interact with me unless my name says otherwise :3 ⑅_
+_F e e l  f r e e  t o  i n t e r a c t  w i t h  m e  u n l e s s  m y  n a m e  s a y s  o t h e r w i s e :3 ⑅_
 
-𓏼꒰ఎ⠀basic dni⠀𐂯 ˚̣̣̣⠀
-_⠀𓈒 sign ata :3   ೃ ´𓏼 ꒱ ♡ _
+𓏼꒰ఎ⠀b a s i c  d n i⠀𐂯 ˚̣̣̣⠀
+_⠀𓈒 s i g n a t a :3   ೃ ´𓏼 ꒱ ♡ _
 
 
 
